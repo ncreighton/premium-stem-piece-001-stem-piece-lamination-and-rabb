@@ -1,0 +1,2 @@
+# premium-stem-piece-001-stem-piece-lamination-and-rabb
+Struggling to nail your stem piece lamination and rabbet cuts without a repeatable system? Most woodworkers rely on guesswork, wasting materials and time on inconsistent joints.  The Stem Piece Lamination and Rabbet Guide is a comprehensive Notion template that eliminates guesswork by providing step-by-step lamination sequences, rabbet calculations
